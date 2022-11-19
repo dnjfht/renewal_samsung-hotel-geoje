@@ -1,0 +1,1 @@
+# renewal_samsung-hotel-geoje
